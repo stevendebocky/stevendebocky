@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @stevendebocky
 - 👀 I’m interested in Smart Home, technology, space exploration, PoGo, ...
 - 🌱 I’m currently learning Spanish!
-- 💞️ I’m looking to collaborate on everything smart home retlated
+- 💞️ I’m looking to collaborate on everything smart home related
 - 📫 How to reach me? Here!
 - 😄 Pronouns: OMG please, STOP IT!
 - ⚡ Fun fact: ...
